@@ -1,1 +1,2 @@
 Kristin Eberman
+ebermank@oregonstate.edu
